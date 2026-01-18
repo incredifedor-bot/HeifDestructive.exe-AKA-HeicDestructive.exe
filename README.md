@@ -1,0 +1,1 @@
+# HeifDestructive.exe-AKA-HeicDestructive.exe
